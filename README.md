@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Yasin071
+- 👀 I’m interested in Cyberssecurity, Python and Videogames
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me Y.Derecik07@web.de
+- ⚡ Fun fact: I Love working out
